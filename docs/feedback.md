@@ -86,3 +86,5 @@ Anonymous comments taken from Reddit, Discord, X.com and our feedback system.
 * *"Every person I share this sub with is always completely grateful, and it's no wonder why."*
 
 * *"Finding out about FMHY's wiki is the best thing that has happened to me, it has helped me so much in every way imaginable, i'm very grateful, keep it up!"*
+
+* * *"When i first stumbled upon this gem of a website it completely overturned my movie, series and tv streaming experience. I spent a lot of my time looking for pirated websites but all i needed was fmhy"*
